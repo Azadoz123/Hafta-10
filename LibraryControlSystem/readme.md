@@ -1,0 +1,6 @@
+![Ekran görüntüsü 2024-02-17 113352](https://github.com/Azadoz123/Hafta-10/assets/132884475/23546b9e-2ae0-4954-9866-c12a5a7ca01d)
+![Ekran görüntüsü 2024-02-17 113645](https://github.com/Azadoz123/Hafta-10/assets/132884475/35f1391c-bc91-45b3-abe4-b6f71b6fe21f)
+![Ekran görüntüsü 2024-02-17 113626](https://github.com/Azadoz123/Hafta-10/assets/132884475/4d4a0e55-b292-41ce-b511-6527c03f06f7)
+![Ekran görüntüsü 2024-02-17 113603](https://github.com/Azadoz123/Hafta-10/assets/132884475/87dd07b4-efeb-4fe2-abb3-ae225ee02948)
+![Ekran görüntüsü 2024-02-17 113537](https://github.com/Azadoz123/Hafta-10/assets/132884475/776be6e3-7485-432e-8546-88dfc8d64e4e)
+![Ekran görüntüsü 2024-02-17 113502](https://github.com/Azadoz123/Hafta-10/assets/132884475/7897961a-da60-4769-a8b3-34c6084f9b83)
